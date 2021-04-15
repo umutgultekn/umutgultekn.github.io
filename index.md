@@ -1,5 +1,5 @@
 Privacy Policy
-Paycore built the Temel Satış Uygulaması app as a Free app. This SERVICE is provided by Qultechsoft at no cost and is intended for use as is.
+Paycore built the Temel Satış Uygulaması app as a Free app. This SERVICE is provided by Paycore at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
